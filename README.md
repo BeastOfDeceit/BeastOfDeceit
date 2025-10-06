@@ -9,7 +9,7 @@
   <a href="https://rentry.co/Y4TTAA">rᥱᥒ𝗍rᥡ</a>⠀ ⌗ ⠀
   <a href="https://www.tumblr.com/virtualjpg">ᥴrᥱძі𝗍s</a>
 </p>
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <p align="center"> <sub> this still has main stuff so check out my main in order to know <sub> </p>
 
 ![tumblr_bdc0935e2df087b09e0663fce1143d76_e2f22cd8_400 gif](https://github.com/user-attachments/assets/f432cc57-783d-4d06-890c-e9faa20b09e1)
